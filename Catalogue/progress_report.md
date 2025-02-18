@@ -34,4 +34,17 @@ We have made significant progress this week:
 3. The design team is nearing completion, with only final adjustments and minor refinements remaining.  
 
 
+---
 
+31st January 2025 to 18th February 2025
+
+The catalogue work is nearly complete, with only a few mentor responses pending.
+
+The following team members have contributed significantly to the catalogue:
+1. Aashna Dogra – Deputy Duckie, Content Team
+2. Divija Arora – Deputy Duckie, Design Team
+3. Pragati Das – Deputy Duckie, Data Collection Team
+4. Vaidika – Design Team
+5. Siri – Design Team
+6. Sailaja – Content Team
+7. Harini – Content Team
